@@ -1,6 +1,8 @@
 I code my best before going to sleep so it was probably 1 am when I coded what ever you are looking at.
 
 Also look at github being all inclusive, suggesting I say what my pronouns are. Call me whatever, I don't think anyone should care about what happens on the internet.
+
+Socials: https://linktr.ee/littleendu
 <!--
 **LittleEndu/LittleEndu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
